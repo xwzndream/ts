@@ -8,7 +8,7 @@ This is the diary of tourists, recording the scenery and memories along the way 
 
 Contact Us
 App E-mail address: tikunga01@gmail.com
- 
+
 Frequently asked questions and answers
 
 Q: How to download and install?
